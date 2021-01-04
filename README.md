@@ -1,1 +1,1 @@
-# Basics-of-Electrical-Engineering-Level-1-
+# Basics of Electrical Engineering (Level 1)
